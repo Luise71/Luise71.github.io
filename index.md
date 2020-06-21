@@ -11,3 +11,6 @@ hat Schätzungen zufolge mehr als 50 Millionen Tonträger verkauft.
 * viele weitere...
 * 2017: Goldene Henne in der Kategorie Lebenswerk
 * 2019: TREBBIA-Award in der Kategorie Contribution to the Dialogue of national Cultures
+
+> Das Leben ist schön, 
+> man muss es nehmen wie es kommt.
