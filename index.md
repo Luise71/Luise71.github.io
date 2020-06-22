@@ -14,3 +14,6 @@ hat Schätzungen zufolge mehr als 50 Millionen Tonträger verkauft.
 
 > Das Leben ist schön, 
 > man muss es nehmen wie es kommt.
+
+
+<img src="https://de.wikipedia.org/wiki/Datei:Kg-foto11.jpg"/>
